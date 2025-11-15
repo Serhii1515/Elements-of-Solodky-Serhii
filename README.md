@@ -1,1 +1,0 @@
-# Elements-of-Solodky-Serhii
